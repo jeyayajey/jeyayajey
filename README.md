@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 
 🎨 Outside of the world of Software Engineering, I love media arts. Right now, I'm mastering in Graphics & Motion Designs, Photo & Videography (Cameras Stuff & Editing) [Adobe Premiere Pro, After Effects, Photoshop, Illustrator], and also I am a Visual Jockey [Resolume Arena] for some events held.
 
-📬 If you need to contact me or need my assist for things I've said before, you can contact me on rossyitahermalina@gmail.com or by Instagram @rossyitataa and
+📬 If you need to contact me or need my assist for things I've said before, you can contact me on zeyadhaafdela@gmail.com or by Instagram @jejyaw and
 
